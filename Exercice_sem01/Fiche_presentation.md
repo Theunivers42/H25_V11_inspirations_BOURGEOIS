@@ -1,0 +1,1 @@
+Je suis une personne a la fois timide et social. J'adore les jeux videos ainsi que les passe-temps creatif comme programmer ou dessiner. Je suis en TIM pour ensuite aller a l'université en design de jeux videos.
